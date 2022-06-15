@@ -1,2 +1,2 @@
 # bruxaevangelica
-Castigo do monstro, sim ele voltou, aquele que é o mais temido de todas as edições do bbb
+Castigo do monstro, sim ela voltou,aquela que é a mais temida de todas as plataformas da internet
